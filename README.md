@@ -9,3 +9,7 @@ Git Hero
 <br> GitRepo
 <br> Nyari kaos 1 lusin
 
+### Muhammad Fajri 'Ainar Rasyid
+Mahasiswa <br>
+Politeknik Negeri Semarang <br>
+Terimakasih ilmunya & semoga saya dapat Kaos
